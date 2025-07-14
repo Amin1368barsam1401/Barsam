@@ -1,2 +1,0 @@
-# Barsam
-Barsam1401
